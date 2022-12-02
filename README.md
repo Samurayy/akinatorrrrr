@@ -1,0 +1,2 @@
+# akinatorrrrr
+Ne bilim ab
